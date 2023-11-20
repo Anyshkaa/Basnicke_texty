@@ -8,4 +8,4 @@ druhé přede,
 třetí hajat nedovede.
 
 A to čtvrté prská,
-a ocáskem mrská.
+a fouskama mrská.
